@@ -19,4 +19,4 @@
 
 本站每天持续更新，补档经典影片，并收录全网最新作品，资源丰富、画质清晰、可免费在线观看，真正满足你对日本AV免费的所有需求。立即收藏本站，每天都能发现更多精彩日本AV免费影片，享受不间断的视觉盛宴！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dth2611/14000 ）</span>
